@@ -1,6 +1,3 @@
 # ENG220_access_to-health_DRIVE
-fsjbhikaskbjvadkbsad
-Elijah is mean to me
-
-
-LET ME EDIT PLZ-Ryan
+We locked in for real, we shall never fall, we are DRIVEn
+Elijah is never here
